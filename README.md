@@ -12,3 +12,4 @@ Every keystroke echoes with possibility.
 Dive in — your masterpiece starts now.
 Don't count the days, 
 make the days count
+Art washes away from the soul the dust of everyday life
