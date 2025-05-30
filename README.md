@@ -6,3 +6,6 @@
 
 Today’s code is unwritten, and the keyboard is your paintbrush.  
 Coffee in hand, purpose in mind — go build something legendary.
+
+Don't count the days, 
+make the days count
